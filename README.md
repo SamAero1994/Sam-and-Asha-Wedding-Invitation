@@ -1,1 +1,0 @@
-#Sam & Asha Wedding Invitation
